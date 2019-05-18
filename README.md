@@ -29,7 +29,7 @@
 ***
 
 **参考视频**  
-\
+
 麗莎.費德曼.巴瑞特:你並非受情緒所擺佈──是你的大腦創造了你的情緒<https://www.ted.com/talks/lisa_feldman_barrett_you_aren_t_at_the_mercy_of_your_emotions_your_brain_creates_them?language=zh-tw>  
 谈论我们行为背后的 “为什么”<https://www.ted.com/talks/tony_robbins_asks_why_we_do_what_we_do?language=zh-cn>  
 情感勇氣的禮物和力量<https://www.ted.com/talks/susan_david_the_gift_and_power_of_emotional_courage/transcript?language=zh-tw>  
